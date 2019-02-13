@@ -19,5 +19,7 @@
 泊头子<br>
 2019-2-11<br>
 
+无效决定共享地址获取方式见链接：https://mp.weixin.qq.com/s/2GUeLhR1OpdmPx3o1jiDwQ
+
 
 
